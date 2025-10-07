@@ -51,7 +51,7 @@ My work blends **technical execution** with **community leadership** to deliver 
 - **GitHub:** 
 (https://github.com/Andyjoe410-netizen)  
 - **Email:** joebritius@gmail.com 
-- **Telegram/Discord:**/t.me/@Joe_Britt
+- **Telegram/Discord:**t.me//@Joe_Britt
 
 ---
 
