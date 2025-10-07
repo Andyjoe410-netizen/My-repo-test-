@@ -48,9 +48,9 @@ My work blends **technical execution** with **community leadership** to deliver 
 ---
 
 ## 📬 Contact
-- **GitHub:** [your-username](https://github.com/your-username)  
-- **Email:** your-email@example.com  
-- **Telegram/Discord:** Available on request  
+- **GitHub:** [your-username](https://github.com/Andyjoe410-netizen)  
+- **Email:** joebritius@gmail.com 
+- **Telegram/Discord:** Tg:t.me/@Joe_Britt
 
 ---
 
